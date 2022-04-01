@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @homiich
 - 👀 I’m interested in music,moovies,sports
 - 🌱 I’m currently learning english 
-- 💞️ I’m looking to collaborate on some migic things
+- 💞️ I’m looking to collaborate on some magic things
 - 📫 How to reach me https://t.me/homi_imoh
 
 <!---
